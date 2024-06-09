@@ -13,8 +13,7 @@ Este vídeo de 48 apresenta uma visão rápida e envolvente do potencial e da ap
 ## 🚀 Resultados
 O vídeo é uma cápsula do tempo que leva o espectador a uma jornada rápida pelo mundo das IAs Generativas, destacando seu potencial transformador.
 
-
-# 🎥 (https://studio.d-id.com/share?id=ce951b457e7758c56765d677a44ec43e&utm_source=copy)
+## 🎥 Video  (https://studio.d-id.com/share?id=ce951b457e7758c56765d677a44ec43e&utm_source=copy)
 
 ## 💭 Reflexão
 Na verdade achei muito engraçado e está bastante amador, deu para absorver a ideia da potência que esta tecnologia tem.
